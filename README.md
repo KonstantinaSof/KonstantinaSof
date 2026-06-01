@@ -1,6 +1,6 @@
 ## Hello-hello, my name is Konstantina ✨
 
-🎨 Multimedia Designer | UI/UX Enthusiast</br>
+🎨 Multimedia Designer</br>
 🌐 Web Design • 3D Modeling • Motion Graphics</br>
 🚀 Always learning and creating new digital experiences
 
